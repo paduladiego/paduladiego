@@ -69,7 +69,7 @@ Atualmente:
 
 ## 🌎 Sobre mim
 
-- 💡 Filosofia: *"Quem divide, multiplica."*  
+- 💡 Filosofia: *"Quem divide, multiplica."* e *"Vai de vagar, que eu estou com pressa."* 
 - 📚 Interesses: cultura, literatura fantástica, cinema, quadrinhos e projetos sociais.  
 - 🧭 Busco sempre unir **estética + eficiência + inovação** para criar impacto real.  
 
